@@ -1,0 +1,1 @@
+google tolong hire saya
